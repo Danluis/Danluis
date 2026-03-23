@@ -16,4 +16,4 @@ Remote opportunities | International teams
 
 ## 🔗 Connect
 
-- LinkedIn: https://linkedin.com/in/danluistejada
+- LinkedIn: [https://www.linkedin.com/in/danluis-tejada/](https://www.linkedin.com/in/danluis-tejada/)
